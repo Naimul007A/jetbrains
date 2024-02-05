@@ -1,4 +1,4 @@
-# Jetbrains Activation Code
+# Jetbrains Products Activation Code
 
 You can use this activation code to activate all jetbrains products
 
